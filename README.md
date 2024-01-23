@@ -1,5 +1,6 @@
 # XPMUser.github.io
 
+Warning: Please don't go to byethost sites on devices owned by the school or the company at work.
 Click on the left arrow to go back.
 Credits: Sitemakers: Daboss7173 
 Site Modifiers: Slappygig, XPMUser/Ao28th28, Cookie, Daboss7173, and more
